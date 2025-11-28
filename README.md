@@ -1,0 +1,1 @@
+# analise_critica_scrum_ingo
